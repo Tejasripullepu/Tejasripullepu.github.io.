@@ -1,1 +1,0 @@
-# Tejasripullepu.github.io.
